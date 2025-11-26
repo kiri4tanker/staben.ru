@@ -1,0 +1,1 @@
+<img src="https://avatars.mds.yandex.net/get-altay/14733519/2a000001959f331a42e4b43dbf0190411380/XL?referer=lkb">
